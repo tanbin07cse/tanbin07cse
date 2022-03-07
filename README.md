@@ -1,4 +1,4 @@
-![Fiverr Level 1 Seller | Web Designer | Developer | Wordpress](http://runiatanbin.com/wp-content/uploads/2022/03/banner-runia.jpg)
+![Fiverr Level 1 Seller | Web Designer | Developer | Wordpress](http://runiatanbin.com/wp-content/uploads/2022/03/banner-runia-1.jpg)
 ### Hi there 👋, my name is Runia Tanbin
 #### Fiverr Level 1 Seller | Web Designer | Developer | Wordpress
 
